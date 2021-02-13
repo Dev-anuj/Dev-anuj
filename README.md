@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-![CreateRemote Cover](https://cdn4.iconfinder.com/data/icons/business-1-49/50/43-512.png)
+![CreateRemote Cover](https://upload.wikimedia.org/wikipedia/commons/thumb/7/79/Man_Working_at_his_Desk_Cartoon_Vector.svg/1200px-Man_Working_at_his_Desk_Cartoon_Vector.svg.png)
 
 
 
