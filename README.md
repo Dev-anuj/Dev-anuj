@@ -12,7 +12,6 @@
 
 **Thank You for reading about me**
 
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on react
 - 📫 How to reach me: https://www.linkedin.com/in/dev-anujsharma/
